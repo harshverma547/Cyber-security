@@ -1,6 +1,6 @@
 Exciting Update!
 
-thrilled to share that I've completed my #task4 as a Cyber Security & Ethical hacking Intern at #technohacksedutechs, focused on enhancing my skills with During this incredible journey, l've delved into the world of web application security and
+thrilled to share that I've completed my #task1 as a Cyber Security & Ethical hacking Intern at #technohacksedutechs, focused on enhancing my skills with During this incredible journey, l've delved into the world of web application security and
 
 I'm
 
